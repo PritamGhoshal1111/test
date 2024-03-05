@@ -1,2 +1,2 @@
-i am pritam Ghoshal
-i am form murshidabad
+I am pritam Ghoshal
+I am form murshidabad
